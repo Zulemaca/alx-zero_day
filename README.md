@@ -1,1 +1,1 @@
-My first readme
+I will bw wealthy in Jesus' name
