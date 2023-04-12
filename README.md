@@ -1,1 +1,1 @@
-I will bw wealthy in Jesus' name
+I will be wealthy in Jesus' name
